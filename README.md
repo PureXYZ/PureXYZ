@@ -1,1 +1,1 @@
-:trollface:GG
+:trollface:
